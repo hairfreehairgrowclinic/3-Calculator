@@ -1,2 +1,2 @@
-# 3-Calculator
+# 3 Hair Transplant Cost Calculator 
 3 calculator
